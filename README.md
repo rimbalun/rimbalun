@@ -50,6 +50,6 @@ I'm always eager to learn and stay updated with the latest web development trend
 
 ## 🤝 Let's Connect
 
-I'm open to collaborations and discussions. Feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/sutanarief/)
+I'm open to collaborations and discussions. Feel free to connect with me on [Twitter](https://x.com/rimbalun)
 
 Happy coding! 🚀
